@@ -1,0 +1,1 @@
+# Hertz-Art-Logo
